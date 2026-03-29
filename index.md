@@ -2,7 +2,7 @@
 
 **Effective Date:** 29 March 2026
 
-theprofessor ("we," "us," or "our") built the "What My Girl Thinks" app as a Free, humor, and entertainment app. This SERVICE is provided by [Your Name or Company Name] at no cost and is intended for use as is.
+theprofessor ("we," "us," or "our") built the "What My Girl Thinks" app as a Free, humor, and entertainment app. This SERVICE is provided by theprofessor at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding our policies with the collection, use, and disclosure of Personal Information if anyone decided to use our Service.
 
